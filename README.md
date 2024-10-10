@@ -1,2 +1,0 @@
-# setembro-amarelo
-setembro amarelo 
